@@ -1,4 +1,4 @@
-![Uploading Banner para Linkedin Personal Minimalista Neutral (1).png…]()
+
 ### Hi there 👋
 
 <!--
